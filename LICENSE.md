@@ -1,4 +1,4 @@
-
+Enhance your Atlas VPN experience with updated Atlas VPN Service | tracker-blocker + smart-DNS, the #1 service. Includes tracker-blocker and smart-DNS for a safer and more private
 
 
 
